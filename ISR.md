@@ -1,1 +1,1 @@
-(https://ibb.co/cgWLf6z)
+https://i.ibb.co/8KycvrF/Ganta.png
